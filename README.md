@@ -1,2 +1,0 @@
-# ASISTENCIA-AKLATAN
-capstone purpose
